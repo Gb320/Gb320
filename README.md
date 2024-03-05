@@ -1,0 +1,7 @@
+- 👋 Hi, I’m a i r c r af t
+- 👀 I’m interested in a i r c r a f t
+- 🌱 I’m currently learning a i r c r a f t
+- 💞️ I’m looking to collaborate on a i r c r a f t
+- 📫 How to reach me a_i_r_c_r_a_f_t@gmail.com
+- 😄 Pronouns: a i r / c r a f t
+- ⚡ Fun fact: a i r c r a f t
